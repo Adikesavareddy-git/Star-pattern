@@ -1,2 +1,2 @@
 # Star-pattern
-Author- ADIKESAvAREDDY
+Author- ADIKESAVAREDDY
